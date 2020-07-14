@@ -10,3 +10,8 @@ https://wangerbb.lanzous.com/b01bis9kd
 密码:6vzi
 
 （如果第二种方法的网盘链接失效了，请直接使用第一种方法下载apk安装包）
+
+官方网站下载【需要科学上网才能打开访问的哦】
+https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
+
+
