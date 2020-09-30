@@ -8,11 +8,12 @@
 https://w.url.cn/s/AQhsBJ7
 
 
+第三种方法：国内网盘直接下载，速度快
+
+https://wangerbb.lanzous.com/iLyPFe6ccva
 
 
-
-
-第三种方法：国外官方网站下载【需要科学上网才能打开访问的哦】
+第4种方法：国外官方网站下载【需要科学上网才能打开访问的哦】
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
 
