@@ -13,6 +13,9 @@ https://w.url.cn/s/AQhsBJ7
 https://wangerbb.lanzous.com/iLyPFe6ccva
 
 
+https://wws.lanzous.com/iFUxNj973zi
+
+
 第4种方法：国外官方网站下载【需要科学上网才能打开访问的哦】
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
