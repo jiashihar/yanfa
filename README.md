@@ -10,13 +10,13 @@ https://w.url.cn/s/AQhsBJ7
 
 第三种方法：国内网盘直接下载，速度快
 
-https://wangerbb.lanzous.com/iLyPFe6ccva
+https://wangerbb.lanzoui.com/iLyPFe6ccva
 
 
-https://wws.lanzous.com/iFUxNj973zi
+https://wws.lanzoui.com/iFUxNj973zi
 
 
-https://xixibao.lanzous.com/iP7oDkmynxc
+https://xixibao.lanzoui.com/iP7oDkmynxc
 
 
 第4种方法：国外官方网站下载【需要科学上网才能打开访问的哦】
